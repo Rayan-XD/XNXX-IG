@@ -16,9 +16,9 @@ Tools Terbaru Crack IG🥰😎
 - `pip install mechanize`
 - `pip install bs4`
 - `pkg install play-audio`
-- `rm -rf XNXX IG`
-- `git clone https://github.com/Rayan-XD/XNXX IG`
-- `cd XNXX IG`
+- `rm -rf XNXX-IG`
+- `git clone https://github.com/Rayan-XD/XNXX-IG`
+- `cd XNXX-IG`
 - `python run.py`
      
 
