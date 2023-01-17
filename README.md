@@ -4,7 +4,7 @@ Tools Terbaru Crack IG🥰😎
 
 <h1 align="center"> [Informasi]</h1>
 
-<h2 align="center">  TOOLS FREE </h2>
+<h2 align="center">  Premium </h2>
 
 ## <b>installation</b>
 
