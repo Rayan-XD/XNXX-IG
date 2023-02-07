@@ -22,6 +22,6 @@ Tools Terbaru Crack IG🥰😎
 - `python run.py`
      
 
- ```Ini Tools Free Enjoy ```</br>
+ ```Ini Tools Premium Enjoy ```</br>
  [![Whatsapp](https://img.shields.io/badge/Whatsapp-RayanXD-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+6285852768706)
 
